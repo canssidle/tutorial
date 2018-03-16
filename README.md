@@ -2,7 +2,7 @@
 
 #### Tutorial for Week 1, 16/03/2018
 
-#### By **DOminic, Canssidle and Carol**
+#### By **Dominic, Canssidle and Carol**
 
 ## Description
 
